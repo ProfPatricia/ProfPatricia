@@ -10,5 +10,4 @@
 - 📖 Adoro ler a aprender coisas novas.
 - 📫 Meu e-mail de contato é p.grczczak@escola.pr.gov.br
 
-![image](https://github.com/ProfPatricia/ProfPatricia/assets/107950459/88471c81-8f92-4745-b361-8ac9bfa1f82e)
-
+![](https://media.tenor.com/i3lImBg2UEQAAAAd/scaler-create-impact.gif)
